@@ -1,2 +1,1 @@
-# config
-Silahkan dijalankan
+kagak tau ini apa yaaaaaa
